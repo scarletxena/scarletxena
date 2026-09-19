@@ -1,5 +1,6 @@
 <img width="98" height="98" alt="220846" src="https://github.com/user-attachments/assets/9cfac591-58cf-4cb6-9690-7f664b469f2e" />
-@zozoaldo2006 <img width="20" height="20" alt="7b5c4521ced590f0e4a81c9806773ed0" src="https://github.com/user-attachments/assets/357fcda5-b291-4046-81ca-11c321cbd5e2" />
+@zozoaldo2006 <img width="25" height="25" alt="sakura-cherry-blossom" src="https://github.com/user-attachments/assets/25f13013-aa54-42e5-9e93-8a6b81fa5e89" />
+
 
 
 <!--
