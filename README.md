@@ -1,6 +1,4 @@
 @zozoaldo2006 💋
-<img width="50" height="67" alt="gif" src="https://github.com/user-attachments/assets/74ad877a-b08a-49a9-a320-bf5254eb38bf" />
-
 <!--
 **scarletxena/scarletxena** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
