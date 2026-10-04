@@ -1,5 +1,5 @@
 ⤷ ゛ ˎˊ˗
-<img width="150" height="130" alt="3xJq" src="https://github.com/user-attachments/assets/42c8ef7f-a7b8-4d7f-9499-fb72d1b9fcda" />
+<img width="160" height="130" alt="3xJq" src="https://github.com/user-attachments/assets/42c8ef7f-a7b8-4d7f-9499-fb72d1b9fcda" />
 @zozoaldo2006 <img width="25" height="25" alt="output" src="https://github.com/user-attachments/assets/f20ea74d-cb75-4765-8bc7-83bd848dc443" />
 
 
