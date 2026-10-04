@@ -1,4 +1,4 @@
-<img width="200" height="98" alt="shadow-the-hedgehog-close-up-g6klf0qv9toihnid" src="https://github.com/user-attachments/assets/5bc46799-3d5b-4c6d-8cc3-605813dc2a65" />
+<img width="150" height="98" alt="shadow-the-hedgehog-close-up-g6klf0qv9toihnid" src="https://github.com/user-attachments/assets/5bc46799-3d5b-4c6d-8cc3-605813dc2a65" />
 @zozoaldo2006 <img width="25" height="25" alt="output" src="https://github.com/user-attachments/assets/f20ea74d-cb75-4765-8bc7-83bd848dc443" />
 
 
